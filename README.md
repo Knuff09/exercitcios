@@ -1,0 +1,2 @@
+# exercitcios
+da faculdade exercicio
